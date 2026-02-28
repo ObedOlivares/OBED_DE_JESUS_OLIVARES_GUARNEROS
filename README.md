@@ -1,3 +1,5 @@
+![image alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg)
+
 # OBED_DE_JESUS_OLIVARES_GUARNEROS
 OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES -
 
@@ -12,5 +14,3 @@ OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES -
 **Líneas de Investigación: Bienes Culturales Protegidos por el Derecho Internacional; Derecho de los Refugiados; México como Miembro en la Corte Penal Internacional.
 
 ***Derecho Espacial Internacional.
-
-![](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg)
