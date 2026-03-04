@@ -1,4 +1,5 @@
-![imagef alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg) 
+![image alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg) 
+
 # OBED_DE_JESUS_OLIVARES_GUARNEROS
 OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES -
 
@@ -14,4 +15,4 @@ OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES -
 
 ***Derecho Espacial Internacional.
 
-![imagef alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg)
+![image alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg)
