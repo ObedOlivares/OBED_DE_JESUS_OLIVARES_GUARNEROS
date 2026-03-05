@@ -1,10 +1,10 @@
 ![image alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg) 
 
-
-# OBED_DE_JESUS_OLIVARES_GUARNEROS
-OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES -
-
 <h3 align="left">
+OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES : 
+</h3>
+
+
 (1). Licenciatura en Estudios Internacionales por la Universidad Europea de Madrid, España.
 
 (2). Diplomado de Postgrado en Comunicación en TV, por la Facultad de Comunicación y el Departamento de Postgrado de la Universidad Autónoma de Barcelona UAB.
@@ -15,7 +15,7 @@ OBED DE JESUS OLIVARES GUARNEROS - DIPLOMATICO - RELACIONES INTERNACIONALES -
 
 **Líneas de Investigación: Bienes Culturales Protegidos por el Derecho Internacional; Derecho de los Refugiados; México como Miembro en la Corte Penal Internacional.
 
-***Derecho Espacial Internacional.</h3>
+***Derecho Espacial Internacional.
 
 
 ![image alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/main/IMG_1259.jpeg)
