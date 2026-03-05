@@ -17,4 +17,5 @@ OBED DE JESUS OLIVARES GUARNEROS - DIPLOMÁTICO - RELACIONES INTERNACIONALES :
 
 ***Derecho Espacial Internacional.
 
-![image alt](https://github.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/blob/179c843d221d9731f5b31059c9a3f303c1551f82/IMG_1259.jpeg) 
+![image alt](https://raw.githubusercontent.com/ObedOlivares/OBED_DE_JESUS_OLIVARES_GUARNEROS/179c843d221d9731f5b31059c9a3f303c1551f82/IMG_1259.jpeg) 
+
